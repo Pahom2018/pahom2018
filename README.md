@@ -29,9 +29,9 @@
 Сайт: https://пахом2018.рф
 
 ### Штабы
-*Барнаул:*   https://vk.com/pahomov2018barnaul
-*Петербург:* https://vk.com/club148840263
-*Челябинск:* https://vk.com/pahom2018chel
-*Хабаровск:* https://vk.com/pahom2018khv
-*Москва:*    https://vk.com/pahom2018moscow
-*Томск:*     https://vk.com/pahom2018tomsk
+*Барнаул:*   https://vk.com/pahomov2018barnaul  
+*Петербург:* https://vk.com/club148840263  
+*Челябинск:* https://vk.com/pahom2018chel  
+*Хабаровск:* https://vk.com/pahom2018khv  
+*Москва:*    https://vk.com/pahom2018moscow  
+*Томск:*     https://vk.com/pahom2018tomsk  
